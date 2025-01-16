@@ -43,7 +43,6 @@ Other Skills:
 
 📫 Connect with Me
 	•	LinkedIn: [Akashnil's LinkedIn profile](https://www.linkedin.com/in/akashnil-garai-4009a21b0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
-	•	Portfolio: 
 	•	Email: akashonline864@gmail.com
 
 💻 My GitHub Stats
